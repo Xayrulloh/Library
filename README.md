@@ -1,1 +1,1 @@
-# This repo is to store useful pdf books
+# This repo is to store useful pdf books and here's the link for Telegram [Channel](https://t.me/programming_library)
